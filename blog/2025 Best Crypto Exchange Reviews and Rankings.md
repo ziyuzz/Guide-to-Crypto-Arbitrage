@@ -68,18 +68,19 @@ According to CoinMarketCap data, below is the top 10 ranking of cryptocurrency e
 
 Binance is one of the exchanges with the largest trading volume and user base globally, supporting multiple languages and product services to meet different user needs. Its Proof of Reserves and SAFU fund provide double protection for user asset security.
 
-✅ [Learn more about Binance]([https://](https://www.binance.com/activity/referral-entry/CPA?ref=CPA_00MZ3PCFW1))
+✅ [Learn more about Binance](https://www.binance.com/activity/referral-entry/CPA?ref=CPA_00MZ3PCFW1)
 
 ### 2. OKX
 
 OKX is a leading cryptocurrency trading platform and Web3 technology company, providing quality services to 50 million users worldwide. OKX not only offers crypto trading but has also launched Web3 wallet services supporting DeFi, NFT, GameFi, and many other areas.
 
-✅ [Learn more about OKX]([https://](https://okx.com/join/9640939))
+✅ [Learn more about OKX](https://okx.com/join/9640939)
 
 ### 3. Bybit
 
 Bybit provides fast matching engines and quality customer service, known for its innovative products and sponsorships in esports and sports.
-✅ [Learn more about Bybit]([https://]https://www.bybitglobal.com/invite?ref=36B3R0W)
+
+✅ [Learn more about Bybit](https://www.bybitglobal.com/invite?ref=36B3R0W)
 
 ### 4. Bitfinex
 
@@ -88,7 +89,8 @@ Founded in 2012, Bitfinex is a platform for professional traders, offering advan
 ### 5. Bitget
 
 Bitget offers multi-chain wallets, NFT marketplaces, and one-stop Web3 solutions. Its copy trading feature is popular among users, and its partnership with legendary footballer Messi has expanded its brand influence.
-✅ [Learn more about Bitget]([https://](https://www.bitgetapp.com/zh-CN/referral/register?clacCode=8AWDKUE6&from=%2Fzh-CN%2Fevents%2Freferral-all-program&source=events&utmSource=PremierInviter))
+
+✅ [Learn more about Bitget](https://www.bitgetapp.com/zh-CN/referral/register?clacCode=8AWDKUE6&from=%2Fzh-CN%2Fevents%2Freferral-all-program&source=events&utmSource=PremierInviter)
 
 ## Taiwan Local Exchange Recommendations
 
